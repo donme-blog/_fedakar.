@@ -1,4 +1,4 @@
-Bu yaziyi ilkin, 7 Aralik 2025'de <a href="[https://example.com](https://donmeler.blogspot.com/2025/12/anam-donme-fedakar-ana.html)">[Buraya tıkla](https://donmeler.blogspot.com/2025/12/anam-donme-fedakar-ana.html)</a>'da yayinladim. Simdi, icerigini degistirmeden buraya aktariyorum. 
+Bu yaziyi ilkin, 7 Aralik 2025'de <a href="[https://example.com](https://donmeler.blogspot.com/2025/12/anam-donme-fedakar-ana.html)">https://donmeler.blogspot.com/2025/12/anam-donme-fedakar-ana.html</a>'da yayinladim. Simdi, icerigini degistirmeden buraya aktariyorum. 
 
 ---
 
