@@ -1,4 +1,4 @@
-Bu yaziyi ilkin https://donmeler.blogspot.com/2025/12/anam-donme-fedakar-ana.html 'da yayinladim. Simdi, icerigini degistirmeden buraya aktariyorum. 
+Bu yaziyi ilkin, 7 Aralik 2025'de https://donmeler.blogspot.com/2025/12/anam-donme-fedakar-ana.html 'da yayinladim. Simdi, icerigini degistirmeden buraya aktariyorum. 
 
 ---
 
